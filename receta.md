@@ -1,28 +1,28 @@
 
  
 
-    200 g de harina
+    400 g de harina
  
 
-    100 g de manteca
+    200 g de manteca
  
 
-    75 g de azúcar
+    150 g de azúcar
  
 
-    Ralladura de 1 limón ( o naranja)
+    Ralladura de 2 limones ( o naranja)
  
 
-    1 huevo
+    2 huevo
  
 
-    ½  cucharadita de polvo de hornear
+    1  cucharadita de polvo de hornear
  
 
     Dulce de membrillo
  
 
-    Agua hirviendo 2 cucharadas
+    Agua hirviendo 4 cucharadas
 
     1. En un bol, mezclar la harina, el azúcar y el polvo de hornear. Agregar la manteca fría en trozos y desmenuzar con los dedos hasta obtener una textura arenosa.
     2. Añadir el huevo y amasar hasta obtener una masa homogénea.
